@@ -1,6 +1,6 @@
 # Digital-electronic-1
 
-## Labs
+## LOOOOOOOOL
 
 **Source code**
 
